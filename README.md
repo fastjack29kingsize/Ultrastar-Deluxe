@@ -219,4 +219,4 @@ UltraStar Deluxe is offered as a **complete free version** with all features and
 Ready to showcase your singing talent? **Download UltraStar Deluxe now and join the karaoke fun!**
 
 ---
-**Last updated:** 2026-10-29 00:42:00 UTC
+**Last updated:** 2026-10-29 06:52:07 UTC
